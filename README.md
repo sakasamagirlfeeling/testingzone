@@ -19,5 +19,7 @@ a very huge r-906, inabakumori, iyowa, maretu and chinozo fan. if you like any o
 <br>
 <img width="320" height="240" alt="r-906-adachi-rei" src="https://github.com/user-attachments/assets/67d7a73f-1207-44cc-a5ce-6db1176f5969" />
 <br>
-me, who is very sigma pro level 100 hacker legend tuff deity listening to iyowa and being THIS cool
+me, who is very sigma pro level 100 hacker legend tuff deity listening to iyowa, inabakumori, r-906, inabakumori, maretu, chinozo, harumaki gohan, atena, amala, satsuki, deco27, pinocchiop, sawtowne, giga, kikuo and being THIS cool
+<br>
+spot kate
 </p>
