@@ -16,7 +16,7 @@ ${\color{gray}  Hello. \space Nice \space to \space meet \space you! }$
 a very huge r-906, inabakumori, iyowa, maretu and chinozo fan. if you like any of these producers you're tuff thankyou
 <br>
 
-<br
+<br>
 <img width="240" height="8" alt="image_2024_05_23_220004732" src="https://github.com/user-attachments/assets/dec12bb5-5a97-4f90-a4b7-3acaec678f80" />
 <br>
 <img width="320" height="240" alt="r-906-adachi-rei" src="https://github.com/user-attachments/assets/67d7a73f-1207-44cc-a5ce-6db1176f5969" />
