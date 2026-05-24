@@ -21,5 +21,5 @@ a very huge r-906, inabakumori, iyowa, maretu and chinozo fan. if you like any o
 <br>
 me, who is very sigma pro level 100 hacker legend tuff deity listening to iyowa, inabakumori, r-906, inabakumori, maretu, chinozo, harumaki gohan, atena, amala, satsuki, deco27, pinocchiop, sawtowne, giga, kikuo and being THIS cool
 <br>
-spot kate
+${\color{teal} spot \space late }$
 </p>
